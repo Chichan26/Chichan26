@@ -1,3 +1,5 @@
+Hi I am Christian!🏸
+
 # 💫 About Me:
 CEO & Founder of 1M1S Network<br>Sponsored by Whitefox Datacenter
 
