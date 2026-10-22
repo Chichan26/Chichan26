@@ -1,7 +1,7 @@
 # Hi I am Christian!🏸<br><br>
 
 # 💫 About Me:
-CEO & Founder of 1M1S Network<br>Sponsored by Whitefox Datacenter
+BS Computer Science at BatStateU Alangilan | AI/ML/Cybersecurity Enthusiast | Forex Trading
 
 
 ## 🌐 Socials:
